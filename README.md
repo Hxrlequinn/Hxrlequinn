@@ -1,4 +1,4 @@
-<img width="1271" height="81" alt="tumblr_345bb2d806df5a8b068391e36a7af9ec_0a8cea2a_1280" src="https://github.com/user-attachments/assets/e1a12882-c44c-4686-b7a1-81e904449f94" />
+![Untitled86_20260226233208](https://github.com/user-attachments/assets/aa1b7a3e-6924-49b0-bc1c-f86c4de054db)
 
 ![Tumblr_l_1682803751500532](https://github.com/user-attachments/assets/51794f9e-4847-4170-9104-56b97b82f26b)
 
@@ -10,7 +10,7 @@ Yap Yap
 
 Yap Yap
 
-![ga7mon](https://github.com/user-attachments/assets/a00a6c7a-3259-4f1c-8b77-2de2f7b64618)
+![tumblr_d80eb3115e31d34e2f4ef18f07a555da_d417effd_1280](https://github.com/user-attachments/assets/f0d33d86-0a38-42f9-b4db-bd25809ee8cd)
 
 Yap Yap
 
@@ -20,9 +20,7 @@ Yap Yap
 
 ![tumblr_147e9d026f6bd3ba626d24644a9be620_e499afe8_1280 gif](https://github.com/user-attachments/assets/4d21d082-df09-4eeb-a8ec-110670c072c2)
 
-<img width="1271" height="81" alt="tumblr_be2db850f768c645e5ee8e03f28d4c25_8f08ae36_1280" src="https://github.com/user-attachments/assets/d2c260e4-11a5-4db0-b0fa-250d7402967a" />
-
-<p></p>
+![Untitled86_20260226233215](https://github.com/user-attachments/assets/c0588326-f5f6-4959-86f5-d8ae91efee3a)
 
 <p align="center">
 THIS REPOSITORY WAS MADE BY @PinkiePieExplosion!
