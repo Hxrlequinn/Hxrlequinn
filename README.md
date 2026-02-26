@@ -8,15 +8,28 @@
 
 ![ga7mon](https://github.com/user-attachments/assets/a00a6c7a-3259-4f1c-8b77-2de2f7b64618)
 
-Yap Yap
+˚ ⋅
+      ” people under 13 STRICTLY DNI .ᐟ „
 
-Yap Yap
+  @   asher / P / Azure .ᐟ
+            ‧₊˚ ⋅ he ♰ they
 
 ![tumblr_bbf64ff6b6e45e5b9685a3371665618b_462a424a_400](https://github.com/user-attachments/assets/d5c621bf-d876-48b4-9b01-18be7b3fd943)
 
-Yap Yap
+  taken by  ˚.୨୧˚
+★ ‧ @Aron ᐟᐟ
+"i can't see, it's sexual reaction
+you and me, it's animal attraction"
+౨ৎ
 
-Yap Yap
+
+⠀　⠀𐐪　⠀ she wants revenge 🩵 ISFP 　🌸
+
+
+⠀　　𐙚　　 cookie run: kingdom , genshin impact , deadplate ,  the freak circus , dandys world 　 ₊  ◞　
+
+　˙　　˳　　⁺　　 i love to draw, collect keychains , posters , acrylic standees and figures ₊  ◞ 
+
 
 ![ga7mon](https://github.com/user-attachments/assets/a00a6c7a-3259-4f1c-8b77-2de2f7b64618)
 
