@@ -24,4 +24,4 @@ Yap Yap
 <p></p>
 
 <p align="center">
-THIS GITHUB WAS MADE BY @PinkiePieExplosion!
+THIS REPOSITORY WAS MADE BY @PinkiePieExplosion!
