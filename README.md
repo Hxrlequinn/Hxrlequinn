@@ -15,12 +15,18 @@ __________________________________________
   @   asher / P / Azure .ᐟ
             ‧₊˚ ⋅ he ♰ they
 
+
 ![tumblr_bbf64ff6b6e45e5b9685a3371665618b_462a424a_400](https://github.com/user-attachments/assets/d5c621bf-d876-48b4-9b01-18be7b3fd943)
 
+
   taken by  ˚.୨୧˚
+  
 ★ ‧ @Aron ᐟᐟ
+
 "i can't see, it's sexual reaction
+
 you and me, it's animal attraction"
+
 ౨ৎ
 __________________________________________
 
@@ -31,17 +37,25 @@ __________________________________________
 
 　˙　　˳　　⁺　　 i love to draw, collect keychains , posters , acrylic standees and figures ₊  ◞ 
 
+______________________________________________________________________________________________________________________________
 
-Credits to : 
-@virtualjpg,
-@mushroompie for smc blinkies
-@cyberdaydream, for 'Living with chronic illness' blinkie
 
 ![ga7mon](https://github.com/user-attachments/assets/a00a6c7a-3259-4f1c-8b77-2de2f7b64618)
 
 ![Tumblr_l_1682584467928519](https://github.com/user-attachments/assets/45cb675e-9a2a-47fd-965e-650066b7e7bc)
 
 ![Untitled86_20260226233215](https://github.com/user-attachments/assets/c0588326-f5f6-4959-86f5-d8ae91efee3a)
+
+<p align="center">
+Credits to : 
+<p align="center">
+@virtualjpg
+<p align="center">
+@mushroompie for smc blinkies
+<p align="center">
+@cyberdaydream, for 'Living with chronic illness' blinkie
+
+______________________________________________________________________________________________________________________________
 
 <p align="center">
 THIS REPOSITORY WAS MADE BY @PinkiePieExplosion!
