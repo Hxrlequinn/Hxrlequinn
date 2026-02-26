@@ -21,4 +21,7 @@ Yap Yap
 
 <img width="1271" height="81" alt="tumblr_be2db850f768c645e5ee8e03f28d4c25_8f08ae36_1280" src="https://github.com/user-attachments/assets/d2c260e4-11a5-4db0-b0fa-250d7402967a" />
 
+<p></p>
+
+<p align="center">
 THIS GITHUB WAS MADE BY @PinkiePieExplosion!
