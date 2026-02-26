@@ -10,6 +10,7 @@
 
 ˚ ⋅
       ” people under 13 STRICTLY DNI .ᐟ „
+__________________________________________
 
   @   asher / P / Azure .ᐟ
             ‧₊˚ ⋅ he ♰ they
@@ -21,15 +22,20 @@
 "i can't see, it's sexual reaction
 you and me, it's animal attraction"
 ౨ৎ
+__________________________________________
 
-
-⠀　⠀𐐪　⠀ she wants revenge 🩵 ISFP 　🌸
+⠀　⠀𐐪　⠀ She wants revenge 🩵 ISFP 　🌸
 
 
 ⠀　　𐙚　　 cookie run: kingdom , genshin impact , deadplate ,  the freak circus , dandys world 　 ₊  ◞　
 
 　˙　　˳　　⁺　　 i love to draw, collect keychains , posters , acrylic standees and figures ₊  ◞ 
 
+
+Credits to : 
+@virtualjpg,
+@mushroompie for smc blinkies
+@cyberdaydream, for 'Living with chronic illness' blinkie
 
 ![ga7mon](https://github.com/user-attachments/assets/a00a6c7a-3259-4f1c-8b77-2de2f7b64618)
 
