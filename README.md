@@ -1,4 +1,8 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cvd62h4kpwpa6vu6wplecicski&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31cvd62h4kpwpa6vu6wplecicski&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&profanity=false&bar_color=3b6cff&bar_color_cover=false">
+  </a>
+</p>
 ![Untitled86_20260226233208](https://github.com/user-attachments/assets/aa1b7a3e-6924-49b0-bc1c-f86c4de054db)
 
 ![Tumblr_l_1682803751500532](https://github.com/user-attachments/assets/51794f9e-4847-4170-9104-56b97b82f26b)
