@@ -19,7 +19,7 @@
 ˚ ⋅
       ” people under 13 STRICTLY DNI .ᐟ „
 
-  @   asher / P / Azure .ᐟ
+  @   asher / p / azure .ᐟ
             ‧₊˚ ⋅ he ♰ they
 
 
@@ -36,7 +36,7 @@ you and me, it's animal attraction"
 
 ౨ৎ
 
-⠀　⠀𐐪　⠀ She wants revenge 🩵 ISFP 　🌸
+⠀　⠀𐐪　⠀ she wants revenge 🩵 ISFP 　🌸
 
 
 ⠀　　𐙚　　 cookie run: kingdom , genshin impact , deadplate ,  the freak circus , dandys world 　 ₊  ◞　
