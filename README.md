@@ -52,8 +52,8 @@ ________________________________________________________________________________
 
 <p align="center">
 Credits to : 
+  
 <p align="center">
-
 @virtualjpg and @mushroompie for smc blinkies
 <p align="center">
 @cyberdaydream, for 'Living with chronic illness' blinkie
