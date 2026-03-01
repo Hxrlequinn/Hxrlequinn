@@ -56,9 +56,9 @@ ________________________________________________________________________________
 Credits to : 
   
 <p align="center">
-@virtualjpg and @mushroompie for smc blinkies
+@virtualjpg and @mushroompie for smc blinkies on Tumblr
 <p align="center">
-@cyberdaydream, for 'Living with chronic illness' blinkie
+@cyberdaydream, for 'Living with chronic illness' blinkie on Tumblr
 
 ______________________________________________________________________________________________________________________________
 
