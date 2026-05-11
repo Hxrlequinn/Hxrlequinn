@@ -39,7 +39,7 @@ you and me, it's animal attraction"
 ⠀　⠀𐐪　⠀ she wants revenge 🩵 ISFP 　🌸
 
 
-⠀　　𐙚　　 cookie run: kingdom , genshin impact , deadplate ,  the freak circus , dandys world 　 ₊  ◞　
+⠀　　𐙚　　 cookie run: kingdom , genshin impact , deadplate , PHIGHTING , the freak circus , dandys world 　 ₊  ◞　
 
 　˙　　˳　　⁺　　 i love to draw, collect keychains , posters , acrylic standees and figures ₊  ◞ 
 
