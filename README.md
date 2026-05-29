@@ -8,7 +8,10 @@
   </a>
 </p>
 
-![](https://komarev.com/ghpvc/?username=Hxrlequinn&label=Cookie_Cutters&color=blue)
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=Hxrlequinn&label=Cookie_Cutters&color=blue) 🩵 
+</div>
 
 <div align="center">
   
