@@ -10,7 +10,7 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=Hxrlequinn&label=Cookie_Cutters&color=blue) 🩵 <img alt="GitHub followers" src="https://img.shields.io/github/followers/Hxrlequinn?style=flat&label=Follower&color=blue">
+![](https://komarev.com/ghpvc/?username=Hxrlequinn&label=Cookie_Cutters&color=5e97f2) 🩵 <img alt="GitHub followers" src="https://img.shields.io/github/followers/Hxrlequinn?style=flat&label=Follower&color=5e97f2">
 </div>
 
 <div align="center">
