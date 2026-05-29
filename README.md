@@ -14,6 +14,7 @@
 
 ![tumblr_147e9d026f6bd3ba626d24644a9be620_e499afe8_1280 gif](https://github.com/user-attachments/assets/41e0a0c9-958d-45ce-b5e7-ef1264108a82)
 
+
 ![ga7mon](https://github.com/user-attachments/assets/a00a6c7a-3259-4f1c-8b77-2de2f7b64618)
 
 ˚ ⋅
@@ -42,8 +43,6 @@ you and me, it's animal attraction"
 ⠀　　𐙚　　 cookie run: kingdom , genshin impact , deadplate , PHIGHTING , the freak circus , dandys world , mha 　 ₊  ◞　
 
 　˙　　˳　　⁺　　 i love to draw, collect keychains , posters , acrylic standees and figures ₊  ◞ 
-
-______________________________________________________________________________________________________________________________
 
 
 ![ga7mon](https://github.com/user-attachments/assets/a00a6c7a-3259-4f1c-8b77-2de2f7b64618)
