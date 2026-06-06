@@ -33,9 +33,9 @@
 ![tumblr_bbf64ff6b6e45e5b9685a3371665618b_462a424a_400](https://github.com/user-attachments/assets/d5c621bf-d876-48b4-9b01-18be7b3fd943)
 
 
-  taken by  ˚.୨୧˚
+  single  ˚.୨୧˚
   
-★ ‧ @Ville ᐟᐟ
+★ ‧ @Dizzy ᐟᐟ
 
 "i can't see, it's sexual reaction
 
@@ -46,7 +46,7 @@ you and me, it's animal attraction"
 ⠀　⠀𐐪　⠀ she wants revenge 🩵 ISFP 　🌸
 
 
-⠀　　𐙚　　 cookie run: kingdom , genshin impact , deadplate , PHIGHTING , the freak circus , dandys world , mha 　 ₊  ◞　
+⠀　　𐙚　　 cookie run: kingdom , genshin impact , deadplate , PHIGHTING , the freak circus , dandys world , mha , EPIC: The musical , wolfwalkers 　 ₊  ◞　
 
 　˙　　˳　　⁺　　 i love to draw, collect keychains , posters , acrylic standees and figures ₊  ◞ 
 
