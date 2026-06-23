@@ -69,10 +69,11 @@ Credits to :
   
 <p align="center">
 @virtualjpg and @mushroompie for smc blinkies on Tumblr
+
 <p align="center">
 @cyberdaydream, for 'Living with chronic illness' blinkie on Tumblr
 
-______________________________________________________________________________________________________________________________
-
-<p align="center">
-THIS REPOSITORY WAS MADE BY @PinkiePieExplosion!
+<div align="center">
+  
+Credit to [Shepherd](https://github.com/PinkiePieExplosion) for this ReadMe creation.
+</div>
