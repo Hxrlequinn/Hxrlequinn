@@ -46,7 +46,7 @@ you and me, it's animal attraction"
 ⠀　⠀𐐪　⠀ she wants revenge 🩵 ISFP 　🌸
 
 
-⠀　　𐙚　　 cookie run: kingdom , genshin impact , deadplate , PHIGHTING , the freak circus , dandys world , mha , EPIC: The musical , wolfwalkers 　 ₊  ◞　
+⠀　　𐙚　　 cookie run: kingdom , genshin impact , deadplate , PHIGHTING , dandys world , mha , EPIC: The musical , wolfwalkers , alien stage　 ₊  ◞　
 
 　˙　　˳　　⁺　　 i love to draw, collect keychains , posters , acrylic standees and figures ₊  ◞ 
 
