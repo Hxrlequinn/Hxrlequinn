@@ -8,5 +8,5 @@ WIP + Rmking by Shepherd
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=Hxrlequinn&label=Experiments&color=fc037b) 🩵 <img alt="GitHub followers" src="https://img.shields.io/github/followers/Hxrlequinn?style=flat&label=T.Mine_Fans&color=ff2962">
+![](https://komarev.com/ghpvc/?username=Hxrlequinn&label=Experiments&color=fc037b) <img width="20" alt="tumblr_b91aeb9cd34cae200648c11b12d36f23_792589dc_75" src="https://github.com/user-attachments/assets/f07327ff-17ca-4033-9842-5df1ac88c53c" /> <img alt="GitHub followers" src="https://img.shields.io/github/followers/Hxrlequinn?style=flat&label=T.Mine_Fans&color=ff2962">
 </div>
