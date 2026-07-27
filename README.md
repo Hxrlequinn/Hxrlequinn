@@ -7,6 +7,6 @@ WIP + Rmking by Shepherd
 </p>
 
 <div align="center">
-  
-![](https://komarev.com/ghpvc/?username=Hxrlequinn&label=Cookie_Cutters&color=fc037b) 🩵 <img alt="GitHub followers" src="https://img.shields.io/github/followers/Hxrlequinn?style=flat&label=Follower&color=ff2962">
+
+![](https://komarev.com/ghpvc/?username=Hxrlequinn&label=Experiments&color=fc037b) 🩵 <img alt="GitHub followers" src="https://img.shields.io/github/followers/Hxrlequinn?style=flat&label=T.Mine_Fans&color=ff2962">
 </div>
