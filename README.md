@@ -1,5 +1,7 @@
 WIP + Rmking by Shepherd
 
+
+
 <img width="1000" alt="611419348-19e95873-825c-451c-b6df-60c0e7bb661d" src="https://github.com/user-attachments/assets/cc918291-5ff7-45c7-8824-58bd8ba5c19d" />
 
 
@@ -17,3 +19,20 @@ WIP + Rmking by Shepherd
 <img width="150" height="20" alt="Tumblr_l_3550773081278178" src="https://github.com/user-attachments/assets/a53fe641-e469-47eb-923d-c2459aa69574" /> <img width="73" height="18" alt="Tumblr_l_3550411914199387" src="https://github.com/user-attachments/assets/f6c661e6-09a5-486f-8152-0cc9d166364f" /> <img width="150" height="20" alt="Tumblr_l_3550403566802771" src="https://github.com/user-attachments/assets/1cad3356-d470-463f-91b0-29fe77c48b3f" /> <img width="150" height="20" alt="Tumblr_l_3550406854745925" src="https://github.com/user-attachments/assets/da6ea647-68aa-49ca-b3c3-7f3c5b1caf24" /> <img width="150" height="20" alt="Tumblr_l_3550409309922541" src="https://github.com/user-attachments/assets/443db5ab-8219-4a68-b988-2a6bffdcc7b7" /> <img width="150" height="20" alt="Tumblr_l_3551351678957289" src="https://github.com/user-attachments/assets/7dbfc05e-8bc0-4c7e-8c89-c9494f320560" /> <img width="150" height="20" alt="Tumblr_l_3550805638415718" src="https://github.com/user-attachments/assets/c183c6f2-aedd-48c9-8639-b2fb33b65eb8" /> <img width="64" height="18" alt="tumblr_22d0f74490cc95555a6f71edb61dceab_cfb00075_75" src="https://github.com/user-attachments/assets/3b6a87de-2d5c-4f4c-9ff6-490bdef135a3" /> <img width="150" height="20" alt="tumblr_a8d61eb43d248c2b2dc33321d73748cd_d15a987d_1280" src="https://github.com/user-attachments/assets/9ec27b85-9b63-4768-a887-bbdce56ca282" /> <img width="150" height="20" alt="tumblr_a329f122bcc168f07cd466a7e10d83b2_0fa0b1a8_1280" src="https://github.com/user-attachments/assets/2d1f2637-3b01-4c09-b44a-dab14f4eb876" /> <img width="73" height="18" alt="Tumblr_l_3550906643806263" src="https://github.com/user-attachments/assets/b68be574-edfa-40f5-a3df-bbf0567a2a54" /> <img width="150" height="20" alt="tumblr_0c4cdd40ca975fd35cd8f8b47ce8dd1b_3f98ed1f_250" src="https://github.com/user-attachments/assets/c0f8513d-1160-440b-8e99-20f70f14b1b6" /> <img width="150" height="20" alt="Tumblr_l_3550900185143185" src="https://github.com/user-attachments/assets/d3fbf149-a889-4612-838f-69ab5a619bc3" /> <img width="150" height="20" alt="tumblr_8db6a825b2965d241a7bfd74a9512756_521dfce1_250" src="https://github.com/user-attachments/assets/dc34600c-b5f4-4587-a9e3-b74624275989" /> <img width="73" height="18" alt="Tumblr_l_3550913897119186" src="https://github.com/user-attachments/assets/707aa985-2644-40cc-acf1-202517b94c51" /> <img width="73" height="18" alt="Tumblr_l_3550912146445263" src="https://github.com/user-attachments/assets/841783b1-f5ef-4b3b-81f2-c51bf0806077" /> <img width="150" height="20" alt="tumblr_d0750bfb5510fd1fdd63badbe0a1b536_6e8ef0d4_250" src="https://github.com/user-attachments/assets/edb4aa65-a031-4702-8225-9cc532905f2f" /> <img width="150" height="20" alt="tumblr_877f3538eb29d258aecf0553ffec33d1_24f09bf4_250" src="https://github.com/user-attachments/assets/fc1ac3e8-4d07-46bc-8198-4d1529a846b1" /> <img width="73" height="18" alt="tumblr_9382437b367270cfc654ec3155a4ee45_08ada986_250" src="https://github.com/user-attachments/assets/e082ba04-355f-4f7c-ba2c-8bcdc40f0484" /> <img width="150" height="20" alt="Tumblr_l_3550765053256331" src="https://github.com/user-attachments/assets/8e4b145e-d629-45de-9d1c-82dbd17b636a" /> <img width="150" height="20" alt="Tumblr_l_3550842794908413" src="https://github.com/user-attachments/assets/bd67c99a-ab0f-4374-bb21-f1cd036896ac" /> <img width="73" height="18" alt="tumblr_e6e4fcc7b46ca6b6aee8b7db50ae4aaf_4a889320_100" src="https://github.com/user-attachments/assets/1c0955ae-4bc9-4330-84db-db979412e087" /> <img width="150" height="20" alt="tumblr_005a87bf80872f623c3da19d396694f1_eb9ac264_1280" src="https://github.com/user-attachments/assets/65f5e6ec-955d-4c28-85c9-4883440b0ddd" />
 
 <img width="150" height="20" alt="555635063-e8d7652b-b739-4485-b34a-f5113c603f9d" src="https://github.com/user-attachments/assets/0f987d93-93bb-495c-bb16-93ea27fec7d4" /> <img width="150" height="20" alt="555635627-1a1aa925-fb97-43fb-8bf9-f01bc087ebfe" src="https://github.com/user-attachments/assets/3038951e-f610-4a53-a905-d6f2b737bb72" /> <img width="150" height="20" alt="555635710-d3c06556-2002-434b-bffe-44fc4767519f" src="https://github.com/user-attachments/assets/be440e20-cb1d-4a33-ac18-8ce59afe0843" /> <img width="150" height="20" alt="555635271-352ecf23-c419-4b6a-b9f9-b863cdfcfa7c" src="https://github.com/user-attachments/assets/7ea0d08d-2a5c-4435-a712-30da6f301bd1" />
+
+<img width="1677" alt="image" src="https://github.com/user-attachments/assets/5f84ec39-d7c8-42e0-a8e3-04fa46553393" />
+
+
+Blah Blah
+
+Blah Blah 
+
+
+<p align="center"> 
+<img width="323" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f7937356c61342e474946" src="https://github.com/user-attachments/assets/5331c84b-f94d-4187-9e61-2af81d3dae88" />
+
+Blah Blah
+
+Blah Blah
+
+<img width="1677" alt="image" src="https://github.com/user-attachments/assets/ed2d2931-8d68-40fd-b4dd-c3b2294c7123" />
