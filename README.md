@@ -1,7 +1,6 @@
-<img width="2048" alt="image" src="https://github.com/user-attachments/assets/78b5b7e4-b799-428d-928b-574116c90257" />
+<img width="1300" alt="image" src="https://github.com/user-attachments/assets/5183a37f-74cd-49f7-a1c2-a84ba1e59cf3" />
 
 <img width="1000" alt="611419348-19e95873-825c-451c-b6df-60c0e7bb661d" src="https://github.com/user-attachments/assets/cc918291-5ff7-45c7-8824-58bd8ba5c19d" />
-
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -37,4 +36,4 @@ Blah Blah
 
 <img width="1000" alt="611419348-19e95873-825c-451c-b6df-60c0e7bb661d" src="https://github.com/user-attachments/assets/cc918291-5ff7-45c7-8824-58bd8ba5c19d" />
 
-<img width="2048" alt="image" src="https://github.com/user-attachments/assets/61be677f-3cc0-4b5e-9068-f50479c99f77" />
+<img width="1300" alt="image" src="https://github.com/user-attachments/assets/1caf127a-60ff-4047-8bcb-9ca55e957694" />
