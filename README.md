@@ -42,3 +42,11 @@ Blah Blah
 <img width="1000" alt="611419348-19e95873-825c-451c-b6df-60c0e7bb661d" src="https://github.com/user-attachments/assets/cc918291-5ff7-45c7-8824-58bd8ba5c19d" />
 
 <img width="1300" alt="image" src="https://github.com/user-attachments/assets/1caf127a-60ff-4047-8bcb-9ca55e957694" />
+
+<p align="center">
+Creds to:
+
+<div align="center">
+  
+Credit to [Shepherd](https://github.com/PinkiePieExplosion) for this ReadMe creation.
+</div>
